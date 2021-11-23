@@ -1,2 +1,2 @@
 # Blooket-Hacks
-Credit to glizzxy
+Here are some AMAZING hacks that I put together!
